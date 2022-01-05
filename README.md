@@ -35,25 +35,25 @@ Liberal scholars who reject supernatural prophecy date the book to the 3rd centu
 
 ### Who are the recipients?
 
-The recipients are the Jewish people whose homeland was sacked by Nebuchadnezzar.  Some have been exiled in Babylon, where “they had to face the problems both of settling down in an alien land, dominated by a pagan religion, and also of remaining faithful to the God of their fathers, even though they had no temple and no sacrificial ritual.”   After Cyrus the Persia ascended the throne, some returned to Judah.  They were faced with the tasking of rebuilding Jerusalem, the temple, and their rest of their homeland.
+The recipients are the Jewish people whose homeland was sacked by Nebuchadnezzar.  Some have been exiled in Babylon, where “they had to face the problems both of settling down in an alien land, dominated by a pagan religion, and also of remaining faithful to the God of their fathers, even though they had no temple and no sacrificial ritual.”[5]  After Cyrus the Persia ascended the throne, some returned to Judah.  They were faced with the tasking of rebuilding Jerusalem, the temple, and their rest of their homeland.
 
 ### What is the author’s purpose?
 
-This book was written to give hope and confidence to the nation of Israel while they were in the midst of difficult times, both during the exile and the start of the return.  It was “a message of encouragement [and] wise counsel, especially through its assurance that God had control and foreknowledge of the forces that seemed to dominate human history.” 
+This book was written to give hope and confidence to the nation of Israel while they were in the midst of difficult times, both during the exile and the start of the return.  It was “a message of encouragement [and] wise counsel, especially through its assurance that God had control and foreknowledge of the forces that seemed to dominate human history.”[5]
 
 ### What genre of literature is this?
 
 The Hebrew Bible places Daniel among the Writings; the Greek and English versions place it among the Prophets.  This difference illustrates the difficulty of identifying the genre of Daniel in simple terms.
 
-It is prophetic literature in the sense that Daniel is concerned with what every prophet is concerned with:  God’s plan for Israel despite her sins.  It is wisdom literature in the sense that Daniel’s exemplary life in Babylon demonstrates a life of wisdom and dependence upon God.  It is apocalyptic literature in that it records visions from God concerning the future through many signs, symbols, and numbers. 
+It is prophetic literature in the sense that Daniel is concerned with what every prophet is concerned with:  God’s plan for Israel despite her sins.  It is wisdom literature in the sense that Daniel’s exemplary life in Babylon demonstrates a life of wisdom and dependence upon God.  It is apocalyptic literature in that it records visions from God concerning the future through many signs, symbols, and numbers.[6]
 
-The book is written in two different languages.  Chapters 1 and 8-12 are written in Hebrew; chapters 2-7 in Aramaic.  Aramaic was the official language of the Persian Empire and the international language of the day.  The Hebrew chapters deal with Jewish concerns and God’s plan for his covenant people; the Aramaic chapters deal with all people in the Babylonian and Persian empires.   The Aramaic chapters may have been published separately for non-Jews. 
+The book is written in two different languages.  Chapters 1 and 8-12 are written in Hebrew; chapters 2-7 in Aramaic.  Aramaic was the official language of the Persian Empire and the international language of the day.  The Hebrew chapters deal with Jewish concerns and God’s plan for his covenant people; the Aramaic chapters deal with all people in the Babylonian and Persian empires.[1]  The Aramaic chapters may have been published separately for non-Jews.[2]
 
-The book of Daniel, though historical, is not consistently chronological.  The visions of the latter chapters cover some of the same time periods as the narratives of the earlier chapters. 
+The book of Daniel, though historical, is not consistently chronological.  The visions of the latter chapters cover some of the same time periods as the narratives of the earlier chapters.[3]
 
 ## Primary Theme
 
-The primary theme of the book is that God is absolutely sovereign.  “The fortunes of kings and the affairs of men are subject to God’s decrees...he is able to accomplish his will despite the most determined opposition of the mightiest potentates on earth.” 
+The primary theme of the book is that God is absolutely sovereign.  “The fortunes of kings and the affairs of men are subject to God’s decrees...he is able to accomplish his will despite the most determined opposition of the mightiest potentates on earth.”[1]
 
 ## Outline
 
