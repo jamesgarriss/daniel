@@ -74,9 +74,12 @@ The primary theme of the book is that God is absolutely sovereign.  “The fortu
 2. Visions (7-12)
 
 	a. God gives Daniel the vision of four beasts (7).
+	
 	b. God gives Daniel the vision of the ram and goat (8).
+	
   	c. God gives Daniel the vision of the seventy sevens (9).
-  	d. God gives Daniel the final vision (10-12) 
+	
+  	d. God gives Daniel the final vision (10-12).
 
 ## Works Cited
 
