@@ -33,15 +33,15 @@ The narrative covers a broad period of time, from Daniel’s capture by Nebuchad
 
 Liberal scholars who reject supernatural prophecy date the book to the 3rd century B.C., suggesting that it was written during the Maccabean revolt to encourage the Hebrews in their fight against Antiochus IV.  This was first proposed by Porphyrius of Tyre in the 3rd century B.C. and picked up again by J.D. Michaelis and others in the 18th century.[1]
 
-## Who are the recipients?
+### Who are the recipients?
 
 The recipients are the Jewish people whose homeland was sacked by Nebuchadnezzar.  Some have been exiled in Babylon, where “they had to face the problems both of settling down in an alien land, dominated by a pagan religion, and also of remaining faithful to the God of their fathers, even though they had no temple and no sacrificial ritual.”   After Cyrus the Persia ascended the throne, some returned to Judah.  They were faced with the tasking of rebuilding Jerusalem, the temple, and their rest of their homeland.
 
-## What is the author’s purpose?
+### What is the author’s purpose?
 
 This book was written to give hope and confidence to the nation of Israel while they were in the midst of difficult times, both during the exile and the start of the return.  It was “a message of encouragement [and] wise counsel, especially through its assurance that God had control and foreknowledge of the forces that seemed to dominate human history.” 
 
-## What genre of literature is this?
+### What genre of literature is this?
 
 The Hebrew Bible places Daniel among the Writings; the Greek and English versions place it among the Prophets.  This difference illustrates the difficulty of identifying the genre of Daniel in simple terms.
 
