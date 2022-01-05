@@ -58,17 +58,17 @@ The primary theme of the book is that God is absolutely sovereign.  “The fortu
 ## Outline
 
 1. Narratives (1-6)
-  1. God grants Daniel favor in Nebuchadnezzar’s court (1).
-  2. God reveals Nebuchadnezzar’s dream to Daniel (2).
-  3. God saves three friends from the fire (3).
-  4. God humbles Nebuchadnezzar (4).
-  5. God writes on the wall (5).
-  6. God saves Daniel from the lions (6).
-2.	Visions (7-12)
-  a.	God gives Daniel the vision of four beasts (7).
-  b.	God gives Daniel the vision of the ram and goat (8).
-  c.	God gives Daniel the vision of the seventy sevens (9).
-  d.	God gives Daniel the final vision (10-12) 
+  a. God grants Daniel favor in Nebuchadnezzar’s court (1).
+  b. God reveals Nebuchadnezzar’s dream to Daniel (2).
+  c. God saves three friends from the fire (3).
+  d. God humbles Nebuchadnezzar (4).
+  e. God writes on the wall (5).
+  e. God saves Daniel from the lions (6).
+2. Visions (7-12)
+  a. God gives Daniel the vision of four beasts (7).
+  b. God gives Daniel the vision of the ram and goat (8).
+  c. God gives Daniel the vision of the seventy sevens (9).
+  d. God gives Daniel the final vision (10-12) 
 
 ## Works Cited
 
