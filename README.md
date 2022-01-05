@@ -73,8 +73,13 @@ The primary theme of the book is that God is absolutely sovereign.  “The fortu
 ## Works Cited
 
 [1] Archer Jr., Gleason L.  Daniel.  The Expositor’s Bible Commentary, Volume 7.  1985.
+
 [2] Baldwin, Joyce G.  Daniel:  An Introduction and Commentary.  Tyndale Old Testament Commentaries.  1978.
+
 [3] Carson, D. A., R. T. France, J. A. Motyer, and G. J. Wenhem, editors.  New Bible Commentary:  21st Century Edition.  4th ed.  1994.
+
 [4] Gangel, Kennoth O.  Daniel.  Holman Old Testament Commentary.  2001.
+
 [5] Wallace, Ronald.  The Message of Daniel.  The Bible Speaks Today.  1994.
+
 [6] Walvoord, John F. and Roy B. Zuck and Dallas Theological Seminary.  The Bible Knowledge Commentary:  An Exposition of the Scriptures.  1985.
