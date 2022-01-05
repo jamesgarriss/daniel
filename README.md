@@ -58,8 +58,10 @@ The primary theme of the book is that God is absolutely sovereign.  “The fortu
 ## Outline
 
 1. Narratives (1-6)
-	a. God grants Daniel favor in Nebuchadnezzar’s court (1).
-	b. God reveals Nebuchadnezzar’s dream to Daniel (2).
+    a. God grants Daniel favor in Nebuchadnezzar’s court (1).
+    b. God reveals Nebuchadnezzar’s dream to Daniel (2).
+	
+	
 	c. God saves three friends from the fire (3).
 	d. God humbles Nebuchadnezzar (4).
  	e. God writes on the wall (5).
