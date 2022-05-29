@@ -2,10 +2,6 @@
 
 The page contains information about the discipleship class on the book of [Daniel](https://netbible.org/bible/Daniel+1) at [Boiling Springs First Baptist Church](https://www.bsfbc.org) for the fall of 2022.
 
-## Introduction
-
-[This page](introduction.md) has an introduction to the book.
-
 ## Handouts
 
 The following links are the PDF handouts for the class:
