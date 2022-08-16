@@ -14,7 +14,7 @@ The following links are the PDF handouts for the class:
 * [Daniel 7](Daniel7Handout.pdf)
 * [Daniel 8](Daniel8Handout.pdf)
 * [Daniel 9](Daniel9Handout.pdf)
-* Daniel 10-12
+* [Daniel 10-12](Daniel101112Handout.pdf)
 
 # Video
 
